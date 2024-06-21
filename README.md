@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @everydayrandomCoder
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning Htmls, CSS, react and lua
+- 💞️ I’m looking to collaborate on games for coding
+- 📫 How to reach me +61419191656 discord: cooki_nichols
+- 😄 Pronouns: he him his
+- ⚡ Fun fact: Grizzly Bears have humps
